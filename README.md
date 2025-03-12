@@ -1,1 +1,1 @@
-# cek-kuota
+# uang kalian akan ilang
